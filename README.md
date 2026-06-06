@@ -1,11 +1,12 @@
-<h1 align="center">𝘩𝘦𝘭𝘭𝘰 𝘨𝘶𝘺𝘴! 𝘪𝘮 <a href="https://daniilshat.ru/" target="_blank"> 𝘸𝘪𝘬𝘪 =)</a> 
+<h1 align="center">𝘩𝘦𝘭𝘭𝘰 𝘨𝘶𝘺𝘴! 𝘪𝘮 <a href="https://daniilshat.ru/" target="_blank"> 𝘸𝘪𝘬𝘪 </a> =)
 <h3 align="center"> °‧ 𓆝 𓆟 𓆞 ·｡  </h3>
 <h3 align="center"> 𝘣𝘥𝘢𝘺 05/18/2009  </h3>
-<h3 align="center"> 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴: 𝘩𝘦/𝘴𝘩𝘦 ⚧ ^_^ polysexual </h3>
+<h3 align="center"> 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴: 𝘩𝘦/𝘴𝘩𝘦 ⚧ ^_^ 𝘱𝘰𝘭𝘺𝘴𝘦𝘹𝘶𝘢𝘭 </h3>
 <h3 align="center"> 𝄞⨾💿✮˚.⋆ </h3>
 <p align="center">
-  <img width="1000" height="600" src=[https://i.pinimg.com/736x/70/8a/27/708a27583b42736962d3fc3c0b933716.jpg](https://media1.tenor.com/m/ohHgZ69u_DsAAAAC/fish-frutiger-aero.gif)>
+  <img width="400" height="300" src="https://i.pinimg.com/736x/46/ca/a3/46caa375debfbd2b63934a74159f8f7f.jpg">
 </p>
+  <h3 align="center">  ↑ 𝘩𝘦'𝘴 𝘴𝘰 𝘮𝘦 <3 </h3>
 <!--
 **wikich3lti/wikich3lti** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
