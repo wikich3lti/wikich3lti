@@ -1,7 +1,7 @@
 <h1 align="center">𝘩𝘦𝘭𝘭𝘰 𝘨𝘶𝘺𝘴! 𝘪𝘮 <a href="https://daniilshat.ru/" target="_blank"> 𝘸𝘪𝘬𝘪 </a> =)
 <h3 align="center"> °‧ 𓆝 𓆟 𓆞 ·｡  </h3>
 <h3 align="center"> 𝘣𝘥𝘢𝘺 05/18/2009  </h3>
-<h3 align="center"> 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴: 𝘩𝘦/𝘴𝘩𝘦 ⚧ ^_^ 𝘱𝘰𝘭𝘺𝘴𝘦𝘹𝘶𝘢𝘭 </h3>
+<h3 align="center"> 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴: 𝘩𝘦/𝘴𝘩𝘦  ^_^ 𝘱𝘰𝘭𝘺𝘴𝘦𝘹𝘶𝘢𝘭 </h3>
 <h3 align="center"> 𝘮𝘢𝘵𝘤𝘩𝘪𝘯𝘨 𝘸𝘪𝘵𝘩 → @Evg3-hub ! </h3>
 <h3 align="center"> 𝄞⨾💿✮˚.⋆ </h3>
 <p align="center">
