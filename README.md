@@ -4,6 +4,7 @@
 <h3 align="center"> 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴: 𝘩𝘦/𝘴𝘩𝘦  ^_^ 𝘱𝘢𝘯𝘴𝘦𝘹𝘶𝘢𝘭 </h3>
 <h3 align="center"> 𝘮𝘢𝘪𝘯 𝘧𝘢𝘯𝘥𝘰𝘮𝘴 — forsaken, regretevator, brawl stars, work at pizza place / mm2012
 <h3 align="center"> 𝘮𝘢𝘵𝘤𝘩𝘪𝘯𝘨 𝘸𝘪𝘵𝘩 → @Evg3-hub ! </h3>
+  <p align="center">
   <img width="400" height="300" src="https://i.pinimg.com/736x/f0/cf/2a/f0cf2a03c6c485bb1dc53f1e4d8b546e.jpg">
 </p>
 <h3 align="center"> 𝄞 ⨾ 💿 ✮˚.⋆ </h3>
