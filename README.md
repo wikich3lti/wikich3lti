@@ -7,7 +7,7 @@
   <p align="center">
   <img width="400" height="300" src="https://i.pinimg.com/736x/f0/cf/2a/f0cf2a03c6c485bb1dc53f1e4d8b546e.jpg">
 </p>
-  <h3 align="center"> PFP IN TG CREDIT - t.me/wtshwwww
+  <h3 align="center"> TG PFP CREDIT - t.me/wtshwwww
 <h3 align="center"> 𝄞 ⨾ 💿 ✮˚.⋆ </h3>
 
 <!--
