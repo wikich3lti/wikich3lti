@@ -1,5 +1,5 @@
 <h1 align="center">𝘩𝘦𝘭𝘭𝘰 𝘨𝘶𝘺𝘴! 𝘪𝘮 <a href="https://daniilshat.ru/" target="_blank"> 𝘸𝘪𝘬𝘪 </a> =)
-<h3 align="center"> ISFJ sp/sx 9w1 (946) sp9-sx4-sp6  </h3>
+<h3 align="center"> ISFJ sp/sx 9w1 (974) sp9-sx7-sp4  </h3>
 <h3 align="center"> 𝘣𝘥𝘢𝘺 05/18/2009  </h3>
 <h3 align="center"> 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴: 𝘩𝘦/𝘴𝘩𝘦  ^_^ 𝘱𝘢𝘯𝘴𝘦𝘹𝘶𝘢𝘭 </h3>
 <h3 align="center"> 𝘮𝘢𝘪𝘯 𝘧𝘢𝘯𝘥𝘰𝘮𝘴 — forsaken, regretevator, brawl stars, work at pizza place / mm2012
